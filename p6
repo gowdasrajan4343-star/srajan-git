@@ -1,0 +1,1 @@
+memory location  by money
